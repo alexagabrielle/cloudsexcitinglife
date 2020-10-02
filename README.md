@@ -8,7 +8,7 @@ Here is a breakdown of his 4 daily activities:
 
 ### Eating
 
-Cloud **LOVES** to eat. He would quite literally eating anything and everything. He has been caught eating toilet paper, dirt, sticks, his own toys, paper, and especially: chicken poop! His own dinner and treats aren't enough for cloud, he is constantly looking for other things to chew on!
+Cloud **LOVES** to eat. He would quite literally eating anything and everything. He has been caught chewing toilet paper, dirt, sticks, his own toys, paper, and especially: chicken poop! His own food and treats aren't enough for cloud, he is constantly looking for other things to chew on!
 
 
 ### Sleeping 
@@ -21,6 +21,6 @@ Of course, Cloud has so much fun playing with his human and doggy friends! He ha
 
 ### Bothering his sisters
 
-Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Cloud, let alone anyone. They are still salty that he has taken over their territories, and often hiss or swipe at him as he continuously tries to get them to play with him! 
+Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Cloud, let alone anyone. They are still upset that he has taken over their territories, and often hiss or swipe at him as he continuously tries to get them to play with him! 
 
 ![CloudwZoe](IMG_5412.JPG)
