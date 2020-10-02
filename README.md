@@ -8,25 +8,6 @@ Here is a breakdown of his 4 daily activities:
 
 Cloud **LOVES** to eat. He would quite literally eating anything and everything. He has been caught eating toilet paper, dirt, sticks, his own toys, paper, and especially: chicken poop! His own dinner and treats aren't enough for cloud, he is constantly looking for other things to chew on!
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
 ### Sleeping 
 
