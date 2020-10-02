@@ -2,6 +2,8 @@
 
 Cloud is a one year old Australian Shepherd from Orange County, California! He has a _very_ exciting life, which consists 4 things: eating, sleeping, playing, and bothering his sisters, Chloe and Zoe!
 
+![Cloud](IMG_1560.jpg)
+
 Here is a breakdown of his 4 daily activities:
 
 ### Eating
@@ -20,3 +22,5 @@ Of course, Cloud has so much fun playing with his human and doggy friends! He ha
 ### Bothering his sisters
 
 Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Cloud, let alone anyone. They are still salty that he has taken over their territories, and often hiss or swipe at him as he continuously tries to get them to play with him! 
+
+![CloudwZoe](IMG_5412.JPG)
