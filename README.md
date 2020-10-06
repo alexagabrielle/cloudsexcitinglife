@@ -24,3 +24,5 @@ Of course, Cloud has so much fun playing with his human and doggy friends! He ha
 Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Cloud, let alone anyone. They are still upset that he has taken over their territories, and often hiss or swipe at him as he continuously tries to get them to play with him! 
 
 ![CloudwZoe](IMG_5412.JPG)
+
+Follow Cloud on instagram!:
