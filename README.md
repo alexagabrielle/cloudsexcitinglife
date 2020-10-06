@@ -25,4 +25,4 @@ Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Clou
 
 ![CloudwZoe](IMG_5412.JPG)
 
-Follow Cloud on instagram!:
+Learn more about Australian Shepherd like Cloud- [American Kennel Club: Australian Shepherds](https://www.akc.org/dog-breeds/australian-shepherd/)
