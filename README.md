@@ -17,12 +17,10 @@ Cloud also loves to sleep, especially after a long day of chasing dogs at the do
 
 ### Playing
 
-Of course, Cloud has so much fun playing with his human and doggy friends! He has a bunch of toys, and his favorites are stufed animals. However, he isn't allowed to play with them that much because he tears out the stuffing and makes a mess! At the dark park, Cloud tries really hard to be friends with all the doggies and get them to chase him! In his own backyard, there is a chicken coop with 3 chickens! He always seems eager to "play" with them, however, the humans think he has alterior motives...
+Of course, Cloud has so much fun playing with his human and doggy friends! He has a bunch of toys, and his favorites are stufed animals. However, he isn't allowed to play with them that much because he tears out the stuffing and makes a mess! At the dark park, Cloud tries really hard to be friends with all the doggies and get them to chase him! In his own backyard, there is a chicken coop with 3 chickens! He always seems eager to "play" with them, however, the humans think he has alterior motives... Australian Shepherds are naturally herders so he can't help but want to hunt the chickens! [Learn more about Australian Shepherds and their prey drive](https://www.akc.org/dog-breeds/australian-shepherd/)
 
 ### Bothering his sisters
 
 Cloud has 2 sisters, Chloe and Zoe, who are cats. They are not very fond of Cloud, let alone anyone. They are still upset that he has taken over their territories, and often hiss or swipe at him as he continuously tries to get them to play with him! 
 
 ![CloudwZoe](IMG_5412.JPG)
-
-Learn more about Australian Shepherd like Cloud- [American Kennel Club: Australian Shepherds](https://www.akc.org/dog-breeds/australian-shepherd/)
