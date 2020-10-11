@@ -13,7 +13,7 @@ Cloud **LOVES** to eat. He would quite literally eating anything and everything.
 
 ### Sleeping 
 
-Cloud also loves to sleep, especially after a long day of chasing dogs at the dog park. He finds comfy places in the most uncomfortable looking areas, such as the bathroom floor or in a ball under a chair. He sometimes sleeps on his back as well, and makes yapping noises as if he is dreaming! So cute!
+Cloud also loves to sleep, especially after a long day of chasing dogs at the dog park. He finds comfy places in the most uncomfortable looking areas, such as the bathroom floor or in a ball under a chair. He sometimes sleeps on his back as well, and makes yapping noises as if he is dreaming!
 
 ### Playing
 
